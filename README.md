@@ -1,4 +1,4 @@
-![](https://github.com/porntipa-ch/My-Profile/blob/main/profile.gif?raw=true)
+![](https://github.com/porntipa-ch/porntipa-ch/blob/main/profile.gif?raw=true)
 
 ### Skills
 
